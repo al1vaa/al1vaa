@@ -6,4 +6,4 @@
 - 💬 Ask me about about my condition
 - 📫 How to reach me: alivir111@gmail.com
 - 😄 Pronouns: she
-- ⚡ Fun fact: i play valorant / OSU
+- ⚡ Fun fact: i play valorant / OSU / EDEL RING
